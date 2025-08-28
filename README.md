@@ -1,6 +1,6 @@
 👋 Hello there! I'm Drashti Patel
 
-🎓 Data Science Intern | 📊 Data Enthusiast | 🧠 Lifelong Learner
+🎓 Data Science | Data Analyst | 📊 Data Enthusiast | 🧠 Lifelong Learner
 
 ---
 
